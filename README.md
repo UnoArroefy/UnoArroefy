@@ -1,10 +1,10 @@
-### Hi there 👋
+### Yo Normies 👋
 
 ---
 
-My name is Numero Uno Arroefy, you can visit my sosial media for further information  
+Name's Numero Uno Arroefy - aka Unoq 
 
-* [Instagram](https://www.instagram.com/numroua/)
-* [LinkedIn](https://www.linkedin.com/in/numero-uno-arroefy-8b7aaa237/)
-* [HackMD](https://www.hackmd.io/@yqroo)
-* [Personal Blogs](https://www.unoarroefy.github.io)
+Horny? Go stalk my socials bitch
+
+* [Instagram](https://youtu.be/dQw4w9WgXcQ?si=XrlJch4GbFCN3Uov)
+* [LinkedIn](https://youtu.be/fC7oUOUEEi4?si=ymkb7_lyJTw1rPzR)
